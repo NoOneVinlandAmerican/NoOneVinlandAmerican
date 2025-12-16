@@ -1,11 +1,13 @@
 ## in a coma with ponytown, plays mostly on roblox -_-.
-![e0252cc64b018de5c52ebedb99a091ec](https://github.com/user-attachments/assets/30e41391-49b1-4d97-8078-cf498537cf80)
+<img width="500" height="500" alt="f62667f2900a32f4184083c783da85b9-removebg-preview" src="https://github.com/user-attachments/assets/de70e808-4c27-4dbb-ad4b-047594333414" />
+
 
 -- *HE/THEY/THEM - TRANSMASC/POLYSEXUAL.* ((⠀⠀𝜗ৎ
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Lora&pause=1000&color=F2A0FF&center=true&width=435&lines=%22+...Sua%3F+%22;%22+Sua%2C+this+isnt+a+joke..!+%22)](https://git.io/typing-svg)
 
-<img width="1024" height="218" alt="b2308ae88414ef3965d26e260a585074-removebg-preview" src="https://github.com/user-attachments/assets/355e248f-2f16-4526-8557-3844be69cebc" />
+<img width="530" height="323" alt="d6e231fb3381d2cd41a78e96db4f665c-removebg-preview" src="https://github.com/user-attachments/assets/9f35a9e0-1408-4be5-94b2-efbcaca87abe" />
+
 
 <img width="500" height="500" alt="027d4fa70b65beb8f944f14bfbd57ddd-removebg-preview" src="https://github.com/user-attachments/assets/bdac14e1-781e-40e7-8c01-0699e02105ab" />
 
