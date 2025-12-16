@@ -7,6 +7,10 @@
 
 *currently thinking if i should rmk my sp.*
 
-" **i wished.. i was the one before you.** "
+" **i wished.. i was the one before you.** 
 
-![505d0f0555aee85861ebb52f2367ac97](https://github.com/user-attachments/assets/4bdaf63c-d4cb-4f56-97b4-cecb7566ec89)
+all info in my sp !!!
+plzz color my tree 
+
+<33![85e010f1e37a5ef9e7ca369fd089f28a](https://github.com/user-attachments/assets/910724c1-3d28-4341-9316-44d34bce2637)
+
