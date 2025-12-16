@@ -7,4 +7,6 @@
 
 *currently thinking if i should rmk my sp.*
 
-**i wished.. i was the one before you.** 
+" **i wished.. i was the one before you.** "
+
+![505d0f0555aee85861ebb52f2367ac97](https://github.com/user-attachments/assets/4bdaf63c-d4cb-4f56-97b4-cecb7566ec89)
