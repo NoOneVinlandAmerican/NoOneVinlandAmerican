@@ -1,10 +1,10 @@
 
-![0228-pinkdrip](https://github.com/user-attachments/assets/35cc3915-5480-4163-9063-dc4f467e0ceb)
+  ![0228-pinkdrip](https://github.com/user-attachments/assets/35cc3915-5480-4163-9063-dc4f467e0ceb)
 
 
 "my god.. my.. UNIVERSE! " 
 
-<img width="500" height="500" alt="48b7742e2500077b06feb45a711a4a7d-removebg-preview" src="https://github.com/user-attachments/assets/1f6f9d3b-0bf7-42bf-8c3b-c34b96e13249" />
+  <img width="500" height="500" alt="48b7742e2500077b06feb45a711a4a7d-removebg-preview" src="https://github.com/user-attachments/assets/1f6f9d3b-0bf7-42bf-8c3b-c34b96e13249" />
 
 > ﹙NN ﹚*nova/rinnil*  ⋆₊˚
 - ?
