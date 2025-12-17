@@ -6,7 +6,7 @@
 
 ![97b05464a42fef5ab3d906180ca0c48b](https://github.com/user-attachments/assets/258c796a-cb42-470e-8516-5afd464c601a)
 
---- *LINKS IN DESCRIPTION!* - *HE/THEY/THEM/ TRANSMASC/POLYSEXUAL.* 
+--- *LINKS UNDER MY PFP!!* - *HE/THEY/THEM/ TRANSMASC/POLYSEXUAL.* 
 
 ++ have no crush yet. quitted having love last time, but decided to come back.
 
