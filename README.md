@@ -5,6 +5,7 @@
 
 ♫ [strawpage](https://natsukichr.straw.page) &nbsp; ♫ [atabook](https://nova122.atabook.org/) &nbsp;
 
+[BANNER AND PFP HEAVILY NOT MINE.]
 
 
 ![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=blue&label=🧵)
