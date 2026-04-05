@@ -8,4 +8,4 @@
 [BANNER AND PFP HEAVILY NOT MINE.]
 
 
-![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=blue&label=🧵)
+![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=blue&label=FurinaFans!)
