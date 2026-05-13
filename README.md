@@ -1,16 +1,13 @@
-
-<img width="400" height="200" alt="1d5ecc2339406e3c610bfe21a1aec1fb" src="https://github.com/user-attachments/assets/a14c1812-e591-4833-9ee4-9f04a375fd3c" />
-
+<img width="518" height="11" alt="IMG-6102" src="https://github.com/user-attachments/assets/b151e70c-905a-47f3-b1a1-1a1a597870c2" />
 
 
-<img width="625" height="399" alt="kangel_rentry_icn____-removebg-preview" src="https://github.com/user-attachments/assets/7d8f95eb-a438-4395-aab8-ef85ee1b70d9" />
+<img width="300" height="300" alt="ꨄ︎_Connie___Date_Everything__icon-removebg-preview" src="https://github.com/user-attachments/assets/00788b77-6d24-4bf3-978a-d08f631f9407" />
+
+
+♫ [strawpage](https://natsukichr.straw.page) &nbsp; ♫ [atabook](https://nova122.atabook.org/) &nbsp; <img width="20" height="20" alt="IMG-5446" src="https://github.com/user-attachments/assets/86f143ca-3ac5-49e6-80fb-b04eff8a9b67" />
 
 
 
-♫ [strawpage](https://natsukichr.straw.page) &nbsp; ♫ [atabook](https://nova122.atabook.org/) &nbsp;
+![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=yellow&label=GAME+MODE+FANS)
 
-[BANNER AND PFP HEAVILY NOT MINE.]
-
-
-![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=ff69b4&label=My+Nerds!)
-
+<img width="518" height="11" alt="IMG-6102" src="https://github.com/user-attachments/assets/b151e70c-905a-47f3-b1a1-1a1a597870c2" />
