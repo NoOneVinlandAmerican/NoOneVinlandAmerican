@@ -8,6 +8,7 @@
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=yellow&label=GAME+MODE+FANS)
 
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=v4pomd2yvsm0j1e0nxvc4pxkt&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=b03fc0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ <img width="518" height="11" alt="IMG-6102" src="https://github.com/user-attachments/assets/b151e70c-905a-47f3-b1a1-1a1a597870c2" />
 
