@@ -6,9 +6,9 @@
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ♫ [strawpage](https://natsukichr.straw.page) &nbsp; ♫ [atabook](https://nova122.atabook.org/) &nbsp; ♫ [rentry](https://rentry.co/n9he4rxh) &nbsp; <img width="20" height="20" alt="IMG-5446" src="https://github.com/user-attachments/assets/86f143ca-3ac5-49e6-80fb-b04eff8a9b67" />
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=yellow&label=GAME+MODE+FANS)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=yellow&label=GAME+MODE+FANS)
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=v4pomd2yvsm0j1e0nxvc4pxkt&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=b03fc0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31eq7jubwlfkr3wjzc7gr2pwgbxq&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=f8dd30&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ <img width="518" height="11" alt="IMG-6102" src="https://github.com/user-attachments/assets/b151e70c-905a-47f3-b1a1-1a1a597870c2" />
 
