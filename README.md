@@ -6,7 +6,7 @@
   ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎    ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎  <img width="300" height="300" alt="Ragatha_x_Pomni-removebg-preview" src="https://github.com/user-attachments/assets/6d27de88-afff-4063-bcd4-e23194ec2c44" />
 
 
-  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎    ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎   ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎ ♫ [strawpage](https://natsukichr.straw.page) &nbsp; ♫ [atabook](https://nova122.atabook.org/) &nbsp; ♫ [rentry](https://rentry.co/n9he4rxh) &nbsp;
+  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎    ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎   ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎ ♫ [strawpage](https://natsukichr.straw.page) &nbsp; ♫ [atabook](https://mylovemyangelsdoll.atabook.org/) &nbsp; ♫ [rentry](https://rentry.co/n9he4rxh) &nbsp;
 
   ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎   ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎    ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎ ‎![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=red&label=jesterdoll+fans)
 
