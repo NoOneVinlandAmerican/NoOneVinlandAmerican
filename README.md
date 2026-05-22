@@ -1,13 +1,8 @@
-‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎<img width="532" height="24" alt="IMG-6100" src="https://github.com/user-attachments/assets/c4692853-bcef-4c6b-976e-4e1989da4a72" />
 
-
-
- 
-  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎    ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎  <img width="300" height="300" alt="Ragatha_x_Pomni-removebg-preview" src="https://github.com/user-attachments/assets/6d27de88-afff-4063-bcd4-e23194ec2c44" />
-
+  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎    ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  <img width="540" height="265" alt="8ffe8815cc95085806f2487c47234434" src="https://github.com/user-attachments/assets/3f84ae4b-dcbf-492e-ac81-24827abf0d55" />
 
   ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎    ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎   ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎ ♫ [strawpage](https://natsukichr.straw.page) &nbsp; ♫ [atabook](https://mylovemyangelsdoll.atabook.org/) &nbsp; ♫ [rentry](https://rentry.co/n9he4rxh) &nbsp;
 
   ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎   ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎    ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎ ‎![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=red&label=jesterdoll+fans)
 
-‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎‎  ‎  ‎  <img width="532" height="24" alt="IMG-6100" src="https://github.com/user-attachments/assets/9b07a470-7250-429d-92bb-dac97d11e3b2" />
+
