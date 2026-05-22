@@ -2,7 +2,7 @@
 
 ♫ [strawpage](https://natsukichr.straw.page) &nbsp; ♫ [atabook](https://mylovemyangelsdoll.atabook.org/) &nbsp; ♫ [rentry](https://rentry.co/n9he4rxh) &nbsp;
 
-‎![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=red&label=jesterdoll+fans)
+‎![](https://komarev.com/ghpvc/?username=novaismypassionzz&color=green&label=stonathan+fans)
 
 **"Love** For *You*..." 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎
